@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tinanguyen95
 - 👀 I’m interested in painting, aquarium , coding my husband :v
-- 🌱 I’m currently learning htlm, css...Wen developer is my tartget in one year from now.
+- 🌱 I’m currently learning htlm, css...Web developer is my tartget in one year from now.
 - 💞️ I’m looking to collaborate on sharing experience in coding,expecialy for beginer.
 - 📫 How to reach me email:nguyennga.hcm@gmail.com
 Many thanks
